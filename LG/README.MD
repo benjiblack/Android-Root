@@ -1,0 +1,1 @@
+﻿# LG (Life's Good, Root's Not)Seriously. Unless your device is pretty old, don't even try.It's 2017 and the LG G4 isn't even properly pwned.
